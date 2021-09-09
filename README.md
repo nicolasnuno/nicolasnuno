@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @nicolasnuno
+- 👀 I’m interested in programming, which could be useful to complement with my career
+- 🌱 I’m currently learning economics in UNLP
+- 📫 How to reach me: on instagram: @nico.nuno
